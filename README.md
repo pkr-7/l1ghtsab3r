@@ -1042,60 +1042,6 @@ The person of interest.
 
 
 
-Basic maths for business
---------------------------------------------------------------------------------------------
-```
-Integers = -3,-2, -1, 0,1,2,3 (Remember -2 is smaller than -1, -1 is smaller than 0)
--1+3 = 2
--1-2 = -3 (it adds)
--1 + 0 = -1
--6+2= -4
-
-Rationals = 1/2 = 0.5
--2+1.5 = -0.5
--6/3+3/2 = -0.5
-
-Operations
--------------------
-Add = -1+3 =2 and +3-1=2 (it doesn't matter how you write)
-
-Multiplication= 2x6 = 12 and 6x2 = 12 (it doesn't matter how you write)
-
-Division = 6÷3 = 2 but 3/6 is not the same
-
-Oh sorry I forgot about business, as time is precious therefore you will be doing MBA in 1 day only.
-There are plenty of terms rotating in the market like marketing management and what not but it comes down to finance only.
-
-There are only 2 things:
-1) income statement/profit loss statement
-2)cash flow statement. This is nothing, very easy.
-3) Valuation is there but it's irrelevant until you have actual sales. Don't worry it's easy.
-
-These 3 above make balance sheet or in America they call it books. Well first class is smart, football is soccer and rugby is football. They are just confusing you nothing else, I am a classic person so I will be using only classic terms, if you don't like it I can't do anything. I have used slash for same meanings.
-
-Income statement has 3 things:
-1) sale/revenue/selling price(s.p)- 2 million $
-2)expense/cost price(c.p)- 1.5 million $
-3) profit/gain = sp-cp= 2 mil - 1.5 mil = 0.5 mil $
-* so if sp is 2 and cp increases to 2.1 because of problems like disaster/raw materials price increase and whatnot so.
-profit will be = sp-cp = 2 - 2.1 = - 0.1 and will be called loss, negative profit is loss.
-
-So income statement is the only thing, there is nothing else in a business, so why people are paying million dollar for MBA degree, well you figure out and tell me.
-
-1 million usd = 1000 000 usd
-1 billion usd = 1000 mill usd = 1000 000 000 usd
-1 trillion = 1000 bill usd = 1000 000 000 000 usd
-
-Conversion to other currency:
-
-1 usd = 80 rupees
-1 mil usd = 80 x 1000 000 = 80 000 000
-
-Congrats, you are a master in business admin
-
-Well you will be getting my website tomorrow where your doubts will be cleared. Not Now, I saw today and it's very old from a year ago, let me upload some updated things.
-```
-
 About the cosmos
 --------------------------------------------------------------------------------------------
 ```
@@ -1233,119 +1179,10 @@ There are tribes here in Meghalaya called Khassi, where men go to the girl's hou
 https://youtu.be/Kje0ISEKKX0
 ```
 
-Purpose of life
---------------------------------------------------------------------------------------------
-```
-These below lines are absolute, so don't worry it is very difficult to achieve this. 
 
-Animals(hardware) evolved to become more complex animals until it became manu that's where the evolution stopped. 
-The animal which is the best hunter is the lion. The animal which is the best flier is the eagle. Like that the animal which is the best thinker is man. 
 
-Manu(manas) = man(mind), once you are a mind kind of animal then the physical evolution(inter species) stopped. 
-Only mind(software) will evolve(intra species) now on. Moon expedition is a leap of mind not the body. 
 
-iPhone 12 (kid) (less perfect ) 
-
-modification = (mating with partner having dominant traits) (dominant traits meaning like long height) 
-(well red hair is not a dominant traits, these are recessive genes, which means it may look good but most of them are not good survivors, they are prone to diseases more often than dominant genes, well it is mostly psychological)
-
-iPhone 13 (rebirth) (perfect ) 
-(minor hardware improvement/ more software features) 
-
-modified (mating) 
-
-iPhone 14 (rebirth) more perfect 
-(minor hardware improvement/ more software features) 
-
-You are not here from your birthday, You were always here. 
-Just software(mind) got major improvements and minor hardware improvements. 
-
-So the fundamental of the creation is to move towards perfection with time, moving towards equilibrium. This is the same for everything that exists.  
-
-Your evolution in this body
-________________________________________________ 
-You are now a man. 
-But you were a toddler, like a dwarf. 
-
-Before that you were walking with your hands, but you tried to stand on your legs and kept falling like a lion tries to stand a few times. 
-
-Before that you were a boar, using knees and hands to walk. 
-Before that you were crawling on your belly like a tortoise. 
-Before that you were swimming inside your mother's womb like a fish(sperm). 
-
-Human evolution
-________________________________________________ 
-So man came from a four legged animal. 
-Before that the four legged animal came from the tortoise. 
-Before that the tortoise came from a fish. 
-
-Before that algae, bacteria etc. 
-And of course the plants. 
-
-So the ocean (water) is compulsory for life to be created. With oxygen, hydrogen, carbon, nitrogen and others. 
-
-My issues with the book - origin of species
-________________________________________________  
-Natural Selection = well book says survival of the fittest, the problem with this argument is that the other species still exists. So I will say it is not in the power of the fittest, the fittest wont wipe out the others like hitler and the USA(Hiro, Nagasa). 
-Like if an asteroid hits, and every creature dies(well you don't know about few of these, they are expert survivors, but let's consider the worst case scenario) so they will come again, the process will repeat, as I said the water is the most important thing for life.
-
-Transitional Fossils = This theory has problems because again let me tell you that nothing has changed except you wearing Adidas shoes. 
-Life originated in Africa, humans evolved from monkeys, they are just living in ignorance, there is no proof and you wont get any proof.
-```
-
-Atman(Sanskrit) = Soul/spirit(again these are not precise English words, they don't explain the meaning, I am using it as a western idiom)
---------------------------------------------------------------------------------------------
-```
-Spirit is the quality/information/definition/characteristics/properties of your body/any object. Spirit is not a material whereas your body is material/object. 
-
-Every material has quality and properties that are particular to them and also properties similar to others. 
-For example similar properties  you eat, animals also eat, stars also eat. 
-Particular properties you can travel to the moon, animals can't. 
-
-Spirit is essential like your abstract, your information, you have love, care, honesty, beauty. These concepts don't exist physically, you have these things even if you are not showing these qualities. 
-OK let me explain further, people think it's stored in the brain. Let's assume you had an accident and got brain injury and you lost your memory, will you act as a violent man now. 
-So this information is not fed to you just once when you were a kid, but rather this information is fed to you constantly and always, or you will become a criminal.  
-
-No, you can't become a ghost, there is no such thing as ghosts. There is nothing that will come out of you, when your body dies. 
-
-Of course your body is made of oxygen, water vapor and other elements which will come out but they all are separate from each other, they don't hold the same information anymore, as when you were alive. 
-
-The spirit has no physical connection with your body, it is the meaning of the object.  
-```
  
-
-Ways to be immortal
---------------------------------------------------------------------------------------------
-```
-Having a child(passing own body/genetic material) (There is no guarantee that your offspring will be better than you, but still it will get better and better after many births) 
-
-Ancestral = even if you don't have a child you might have brother and sister, they also carry almost the same genetic material. Even more, your mother and father have brothers and sisters and their children. 
-
-Having a major achievement(people that are not your blood relative will become you, they are inspired by your spirit/quality/work) (The problem is someone will replace your work in the future if your work is not ideal and absolute.) 
-
-Attaching your name to the extraordinary person becoming part of the history. (The problem is how will you know who is the extraordinary person of such sophistication.) 
-```
-
-Genetics
---------------------------------------------------------------------------------------------
-```
-If you want to know about women sex organs specifically then, I don't think there are too many differences between men and women, there is only 1 chromosome difference. The man was a woman, that's why they have nipples.  
-
-Female = X chromosome(girl) = 23 chromosomes
-Women don't have Y chromosomes, Women don't have ability to control the gender of the new offspring. 
-
-Male = X/Y chromosome = 23/22 chromosomes
-Only Men have both X and Y chromosomes. 
-So it depends upon male whether he wants a boy or girl to reproduce. The problem is men are very stupid nowadays, they don't know how to control genetics. 
-
-Girl birth = XX
-Boy birth = XY
-So X is common, that's why men also have nipples. 
-
-If there are things that only girls have, then I can't verify that, personally experience that. That is the only thing in the cosmos that I don't know. 
-
-But I think the extra 23rd chromosome in females holds the information about womb design.
-```
 
 Yuj
 --------------------------------------------------------------------------------------------
@@ -1382,43 +1219,6 @@ ________________________________________________
 This is the real game. Yes, reading this list is also Yuj.
 ```
 
-Mind
---------------------------------------------------------------------------------------------
-```
-Awake - you are reading this(this is fake, you don't know the reality)
-________________________________________________ 
-This state consumes a lot of energy, the food you have eaten.
-
-Dreaming - started just before waking up(this one is also fake, you can think whatever you want but it's not true)
-________________________________________________ 
-This state consumes slightly less energy from the above state.
-
-Deep sleep(complete blankness) - before dreaming(this one is blank, time between sleep and dreaming) 
-________________________________________________ 
-You can't remember anything, because there is nothing in this state, fully dark.
-Saves a lot of body energy. Relaxation state, healing state.
-
-4th state(this one is real only) - there is no 4th state, you are the combination of all these states.
-________________________________________________ 
-All these states are necessary. 
-
-Consciousness(voluntary)                               |          Subconscious (involuntary)      
--------------------------------------------------------|-------------------------------------------------------
-Free will - choosing a white shirt for today           | Nature's will - what led you to have that shirt in your closet?    
-What job do you want to do?                            | You were traveling to the interview location, but somehow the road was blocked, and you couldn't reach it on time.    
-Do you have to remember your phone's password?         | Or you just find yourself logged in.     
-
-There is a very thin line here, it is very difficult to understand this concept, pay attention. 
-
-Two people don't see the same thing the same way. 
-
-If I say what is this, you will say it's a tree. Of course it's a tree,  there is no doubt about that. 
-But for me everything is atoms, you couldn't see the atoms because you haven't seen an atom. But I can see them like an x-ray. 
-
-So my point is people perceive things differently according to their level of consciousness. 
-So what I am doing is enhancing your vision to enable you to see what I see, the broad picture. 
-Because if I speak to you in Chinese no matter what secret I tell you, you won't understand a single thing.
-```
 
 
 Language
