@@ -208,55 +208,6 @@ Amla
 Protein is not necessary for every person except (physical labor) and sugar can be drained by doing exercise so there is no issue.
 ```
 
-Health tips
---------------------------------------------------------------------------------------------
-```
-If you can't see in the dark means, you have vitamin A deficiency. You are a human you should able to see clearly at night because you were in jungle while evolution.
-Sweet potatoes
-
-If you have skin problems, you have vitamin B deficiencies.
-You should eat Daal everyday in lunch = legumes, pulses.
-
-If you have fatigue and weakness, its vitamin C deficiencies.
-You should eat sour things everyday, citric, lemonade, orange, and fruits.
-
-Knock knees and flat foot = this happened because you have vitamin D and calcium deficiencies.
-You get tired very soon and get leg pain if you try to walk on a hilly area. If you stand straight joining ankle heels and if your knees touching you have knock knees but there should not be too much gap either. And foot should be curve not flat.
-This one is time talking will take few years, bone related things always takes time.
-Scientists say drink milk but I never drank milk or eaten meat. Plants have enough calcium that you need, my height is 5,10.
-
-You should eat rice everyday, I eat flatten rice every morning and normal raw white rice every lunch. Sleeping with pillow between knees, jogging in sand or knee level water, trekking up hill. And sunlight is must.
-Taking only calcium supplements is very dangerous and can be fatal because excess calcium can't get out of your body, because calcium is not water soluble, it will get deposit in your organs and causes cancer.
-
-Nervous system issues, because of vitamin E deficiencies.
-Eat seeds = mustard oil, almonds, pistachios.
-
-Easy bruises= vitamin K
-Eat pumpkin, koshola saag, egg plant, green chili, white radish.
-
-Banning of gym equipment, too much equipment(creating pollution due to excess metal use)(well only the few pursuing sports professionals have to use wooden weights, use brick weights)(unhygienic-lot of people using the same) 
-(weight lifting can cause permanent tissue damage in the long run), yoga is enough and very safe.
-
-Cold/fever/headache/back pain = It happens because you have taken too much workload. So take rest, drink water, eat more fruits, no need to take tablets or medication. (You will get better in a week maximum)
-(Caution. do not take medicine and tablets that you see in tv ads like disprin, crocin these are fatal drugs in some cases)(Go to doctor if problem continues)
-
-Stomach ache/ acidity =  It happens because you have taken too much work load or food poisoning (you have eaten something that you didn't want to eat but ate anyway), or bad habits like not sleeping early or late night mischief. So take a rest, drink water, eat more fruits. 
-You may need to take a tablet = esomeprazole magnesium 40(you can buy this without prescription, it acts very fast like within 5 minutes, eat something after taking the tablet). (You will get better in a week maximum)(Don't take this tablet regularly or you might develop stones)
-
-The so-called scientists are sellouts, is there anything in the world that you can't buy for money. Money can make a lie true. Money can change history. Who cares about what you eat.
-The fact is humans are anatomically herbivores.
-So if you think animals don't know that you ate an animal, do you think they are stupid, they know very well.
-How, from the smell of your skin.
-
-snake bite = People don't die because of a snake bite or scorpion. They die because of panic and heart attacks. The solution to all the problems is to be calm and keep breathing. 
-
-If something bites you just keep calm, keep breathing, keep cool, go to the nearest clinic, pharmacy, or anything. 
-Nowadays the antivenom comes in just one injection for all neuro toxic creatures, available everywhere. 
-
-Remember as I have said earlier you were a snake before in the evolutionary line, so your body knows these things. 
-I have met a lot of guys, who were bitten by cobras and whatnot. They say they don't have to do anything, they are used to it. 
-```
-
 Drinks
 --------------------------------------------------------------------------------------------
 ```
