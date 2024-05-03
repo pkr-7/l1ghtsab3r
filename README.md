@@ -25,141 +25,7 @@ So don't start a fight to prove your point to a stupid person, you won't achieve
 
 So, keep wondering, this information may take a few years to completely sync into your mind.
 
-Utensils
---------------------------------------------------------------------------------------------
-```
-Only unglazed clay and 100 % cast iron(not cast iron alloy, pure no impurities) utensils should be used (blood is made of iron so no issue).
-Some companies are selling steel and writing 100% cast iron, check the factory. (companies are putting some unknown oil coating to prevent rust)(iron is prone to rust so must be coated with mustard oil only after washing).
-
-Cooking pots
-________________________________________________ 
-100% cast iron wok with lid 3L x 1.
-Cast iron pot with lid for boiling.
-Flat Pan cast iron.
-
-Accessories
-________________________________________________ 
-Cast iron Mortar and pestle (stone, wooden should be avoided due to breakage).
-
-Neem Wood Board + rolling pin (avoid stone, plastic, metal). (Neem = antibacterial wood)
-
-Knives big + small (wooden handle is recommended), Cutting board (Neem wood) (avoid stone, plastic or metal). 
-
-Dough mixing pot stainless steel.
-
-Strainer for frying = not the wire mesh one because it is hard to clean, the one with holes, don't keep it drained because it is stainless steel, not ideal. and cast iron is not possible.
-
-Natural fiber baskets.
-Clay storage jars.
-Clay glass. 
-
-** non-stick Teflon(very dangerous), aluminum, steel, stainless steel, copper, plastic, silicone, tin, ceramic, non-stick Teflon utensils should be avoided. 
-But why ? because = metals have leaching properties, can enter the central nervous system, aluminum and copper turn to Al2O3 and CuO. ceramic has paint.
-
-Food Packaging
---------------------------------------------------------------------------------------------
-Clay and leaf is recommended.
-
-** Plastic packaging should be avoided(aluminum is slightly better than plastic but still it should be avoided). 
-```
-
-Cleaner (utensils/hair/body/cloths/teeth) (won't work if exposed to chemicals, use the normal soap)
---------------------------------------------------------------------------------------------
-```
-Neem wood brush - https://www.amazon.in/Origami-Karma-Tooth-Brush-Bristles/dp/B09MLZ2NDH/ref=sr_1_5?crid=2OG0A81Q64JHE&keywords=neem+toothbrush+good&qid=1685100329&sprefix=neem+toothbrush+good%2Caps%2C344&sr=8-5
-
-Teeth cleaning = dried ginger powder, dried amla powder, dried turmeric powder, dried clove powder, raw unrefined sea salt crystals, tulsi.
-Mix the above ingredients (no cavity ever)(remember that if you have eaten factory made things like chocolate then this wont work, use toothpaste, it will work but after a few more times). 
-
-Body(cold water) and cloth(hot water) 
-________________________________________________ 
-Acid wash- lemon/orange/amla juice (squeezing the actual fruit not buying juice bottles from the market). 
-
-Never take a shower bath in hot water, especially head wash, not even in winter. 
-If it is too cold then boil the water to 25° Celsius not above.
-
-Base wash - turmeric/neem in hot boiling water(base wash should be avoided in case of clothes specially white color).
-
-Cast iron utensils
-________________________________________________ 
-Neutral Salt wash - sea salt in hot boiling water
-
-** Vim, rin, surf, tide, soap, shampoo, hand wash should be avoided. (can only be used to clean exposure to chemicals and toxic chemicals like grease, synthetic paint, other chemicals) 
-
-Scrubs
-________________________________________________
-Body scrub (mini rough textured cotton cloth).
-Utensil scrub (coir).
-
-Broomstick(natural fibers)(wooden handle).
-Long mop for wet(cloth instead of sponge)(wooden handle).
-
-Cleaning gloves kitchen+bathroom(ok just this one uses plastic).
-Toilet brush(wooden handle).
-Scrubbing brush with C type handle(coir)(wooden handle).
-
-Microfiber bundle(reuse old fabric).
-Garbage bags(don't use these).
-paper towel(don't use these).
-
-** Harpic, Lysol, acid, Isopropyl alcohol should be used to remove chemical exposure only.
-
-Pest control
-________________________________________________
-You have to feed them first at least twice a day, or they will take on their own.  
-```
-
-Grocery(organic is written but not given, so grow your own)
---------------------------------------------------------------------------------------------
-```
-*** GMO- Genetically modified organisms.
-
-complex carbohydrates 
-________________________________________________ 
-Rice (white rice) = dosa/idli/vada/kheer (Avoid basmati rice, it's GMO).
-Chudda(poha)(flattened rice) = sweet poha, salty poha.
-Muddi(puffed rice) = Jhal Muddi.
-khoi(popped rice) = Ukhudda.
-
-** Red, black, brown rice are GMO and should be avoided.
-
-Wheat
-________________________________________________ 
-Atta(brown flour) = puri/paratha.
-Maida(white flour) = luchi/roll paratha/kachori/nimki/pani puri/noodles/pizza.
-Suji(wheat granules) = dosa/idli/vada/upma/kheer.
-
-Plant proteins
-________________________________________________ 
-Unpolished arhar Dal(lentils/ legume) = dal/dalma. 
-Unpolished Moong dal = dalma/ saag moong/ dal.
-Unpolished Chana dal = dal/dalma/sattu/besan/papad.
-Unpolished Biri/urad dal = dosa/idli/ vada.
-
-** Masoor dal should be avoided.
-
-Sweetener
-________________________________________________ 
-Jaggery(raw unrefined sugarcane)(used in sweet rice, sweet dal but not to make lemonade, fruit juice)
-Misri(crystal raw unrefined sugarcane)(used in making lemonade, fruit juice)
-
-** Refined sugar should be avoided.
-
-Dry fruits
-________________________________________________ 
-Almonds, Pistachio, Raisins.
-
-** Avoid walnuts, cashews, peanuts, dates.
-
-Achar (pickle) = mango/amla/lemon/chili/ginger.
-
-Spices
-________________________________________________ 
-Hing, Mustard seeds, Clove whole, Fennel seeds
-Turmeric whole, Ginger whole
-Dried mango, Dried amla
-
-Raw sea salt(avoid pink salt from mountain (don't dig the mountain) is limited whereas sea is unlimited and sea is more nutrient dense than mountain)
+dense than mountain)
 
 ** Garlic, Garam masala, cumin, coriander, cardamom, cinnamon, oregano, star anise, bay leaf, curry leaf, mint leaf, Cumin, methi, Kasuri methi should be avoided.
 
@@ -205,15 +71,7 @@ Amla
 ** Apple, strawberry, watermelon, guava, jackfruit, pineapple, litchi, kiwi, raspberry, blueberry etc should be avoided, (Steve jobs died because of this, he didn't know which fruit to eat).
 
 *** Well, the growth in carbon dioxide over the past 100 years has made plants addicted so, the plants now have high sugar levels and decrease in protein but it will level up after the pollution is gone. 
-Protein is not necessary for every person except (physical labor) and sugar can be drained by doing exercise so there is no issue.
-```
-
-Drinks
---------------------------------------------------------------------------------------------
-```
-Drinks = Lemonade, Fruit juice (Grape, mango, sugarcane, orange), Coconut water.
-
-** All types of supplements(you don't need them = expensive urine), Tea, coffee, health drinks(boost/horlicks), chocolate, redbull(taurine),  cola, soda, lassi, milkshake, aloe vera are dangerous. sugar free is more dangerous than sugar(don't fake your receptors).
+Protein is not necessary for every person except (physical labor) and sugar can be drained by doing exercise (you don't need them = expensive urine), Tea, coffee, health drinks(boost/horlicks), chocolate, redbull(taurine),  cola, soda, lassi, milkshake, aloe vera are dangerous. sugar free is more dangerous than sugar(don't fake your receptors).
 
 Alcohol (decision making ability is affected and leads to poor judgment, enhances the anger) 
 ________________________________________________
