@@ -39,54 +39,6 @@ Ghee (A2 milk not A1, A1 is GMO cow whereas, A2 is unaltered species)(ghee = but
 Butter (A2 milk based)(unsalted)
 Dahi(Greek yogurt)(sour not sweet)
 
-** Paneer, raw milk should be avoided.
-** Non-dairy milk should be avoided like almond milk because it's fake.
-** Sunflower, safflower, olive, avocado, rapeseed, palm, vegetable oil should be avoided (expensive slow poisons, increases cholesterol resulting heart attacks, these oils + gym is fatal)
-
-________________________________________________ 
-Vegetables
-________________________________________________ 
-Koshola saag(spinach)(other saags should be avoided)
-Pumpkin (very big ones are GMO)
-Patal
-Sweet potato
-Green egg plant(only one in a day not more, and small one not big one, big one is GMO, purple is GMO)
-White radish
-Green bananas
-green Chili ( careful don't buy big GMO ones)
-Lemon (what to say its magical)
-
-** Onion, tomato, corn, okra, carrot, turnip, cauliflower, cabbage, broccoli, palak, peas, bell pepper, Peas, Beans, Potato (brownies/fries), beans etc should be avoided.
-
-Fruits
-________________________________________________ 
-Orange
-Bananas (big ones are GMO)
-Green Grapes (dark grapes are GMO)
-Coconut
-Mangoes (avoid Alphonso it's GMO)
-Bael
-Amla
-
-** Apple, strawberry, watermelon, guava, jackfruit, pineapple, litchi, kiwi, raspberry, blueberry etc should be avoided, (Steve jobs died because of this, he didn't know which fruit to eat).
-
-*** Well, the growth in carbon dioxide over the past 100 years has made plants addicted so, the plants now have high sugar levels and decrease in protein but it will level up after the pollution is gone. 
-Protein is not necessary for every person except (physical labor) and sugar can be drained by doing exercise (you don't need them = expensive urine), Tea, coffee, health drinks(boost/horlicks), chocolate, redbull(taurine),  cola, soda, lassi, milkshake, aloe vera are dangerous. sugar free is more dangerous than sugar(don't fake your receptors).
-
-Alcohol (decision making ability is affected and leads to poor judgment, enhances the anger) 
-________________________________________________
-White wine (green grapes)
-Rum (sugarcane)
-Wheat beer
-
-**Whiskey, vodka, gin, normal beer (barley) , red wine( dark grapes) should be avoided.
-
-Smoke(enhance decision making process, decreases the anger)
-________________________________________________
-Ganja(Marijuana)/bhang(Cannabis)/hash(raisin) (can cure all diseases, it has no side effects or overdose)(brain has cannabinoid receptors by default)(only sativa species all other are GMO)
-
-Opium (can cure all diseases, but it has overdose so caution is required, that's why the first option is recommended).
-
 Well a disease is an idea, I had a panic attack 4 times well nothing serious. But I made the same mistake 4 times over excitement. The thing is there is a sequence, you can smoke pot first and then drink alcohol and then smoke again if you want. 
 But if you drink first and then smoke pot, then you will get a panic attack, well nothing serious just sleep for 1 hr on the spot, everything will get normal, max you will get unconscious.
 The reason is THC is stronger than alcohol... That means if you smoke first then alcohol will not have an effect. 
