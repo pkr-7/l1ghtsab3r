@@ -408,43 +408,6 @@ Whatsapp                | Signal
      
 So tell them to open source fast or shutdown we don't need these.(Apple, Microsoft, Google, Meta)
 
-You people have lot of misconceptions about hacking, well it's just a fancy made up word. If I can access your facebook profile or see inside your computer then you say you were hacked. But now a days both hardware and software have become powerful and secure. Which means the firewall has improved a lot, because it's also a software.
-So to hack your Facebook account I need your password, because it is impossible to hack Facebook server. Then how can I know your password, there are only five ways.
-If you wrote your password somewhere and I got it.
-If you are sleeping some where and someone looked into your device.
-And If you are using wifi outside like hotel, shop, airport etc.
-If I am staying near your house and got signal from your router(fiber modem).
-So someone must be near you to do such things.
-Yes, if you are using your phone network 5g/4g then you are safe. Of course you need fiber internet, so you have to set the router password to very difficult. Not talking about wifi password, your router has a separate password.
-When you buy fiber service, when they provide you the modem, there is a link, user-name and password written on the box, so don't throw away the box right away. Go to the link, enter user-name password and set a difficult password.
-Don't buy too powerful modem like big antennas and more range, you just need signal inside 2 rooms that's it.
-
-Open source Software        
-________________________________________________ 
-Laptop/Phone/tablet
-
-Browser = Chrome, Firefox, Brave
-Office = LibreOffice
-Vpn = Psiphon
-Pdf viewer = sumatra
-Image editor = Gimp
-Vector graphics = Inkscape
-Video player = Vlc
-Cache cleaner = Ccleaner
-Compressor = 7-Zip
-
-These 2 tools are very powerful for editing text files. the main git file will become lengthy day by day then it will be more difficult to search. 
-
-1) https://meldmerge.org/ (This is like git but offline to compare changes in text files.) 
-
-2) https://code.visualstudio.com/ (This is a text editor, don't be afraid of the name, it's easy to use, just install, when you click on find and input a word or line, you will see the search results with better experience.)
-The only issue with this software is that it doesn't have a dictionary. So you have to copy paste it to the normal google word type office software to correct spelling and grammar.
-
-I use Asus vivobook x510uf , intel i5, 12 gb ram, 2gb NVIDIA graphics card, 250gb ssd. (550 USD, I bought it online on valentines day offer, will be more cheaper on Halloween) 
-These above tools will run smoothly on any Apple laptop, if you don't know how to buy a Windows laptop. Yeah, buying a Windows laptop is very tricky. Shops will cheat you and you don't know how to order online.
-I make software. I need a laptop for now. But you should buy an Apple iPad or Samsung galaxy z fold 4 instead of a laptop.
-Galaxy z fold is best right now because It combines, phone, tablet and laptop into one device. Of course rollable will be better in the future. But the z fold is the 4th generation now and cheaper than iPhone, iPad, macbook combined.
-
 https://www.synthesia.io/
 https://www.descript.com/
 If you want to become a Director and can't afford Warner Bros or Columbia Pictures, you can use these. Free software is not available right now, but will be available after 1 year. These are very new right now. Don't upload yourself into this.
