@@ -461,17 +461,6 @@ So, the robot army type technology exists but is not that good now, the power so
 So when will it be good, the chip in your phone is a 7nm transistor, and today 3nm can be manufactured? And 1 nm is last because that is the size of the silicon atom.
 What then? There are attempts to build a quantum computer like google quantum computer. Everything will be the same as manufacturing, just different materials will be used in making that chip.
 After this, computers will have more power. Right now its brain is not even as good as a rat's mind.
-
-How to use computer/phone  
-Do not use # tags, Don't use third party filters, you can edit by phone default, Don't use unverified apps.
-
-Don't save anything on your phone/laptop/tab other than movies,songs, it doesn't get deleted even if you go to the recycle bin and delete it. Because there is crash protection software by default and you can't change this setting, it's locked on every device in the world. . . 
-It can be recovered very easily, that's why you are not safe in the service center
-
-If you move a photo to another device, it is still not deleted, so you will think that memory will get full, so the old deleted data will be permanently deleted if memory gets full by new data Overriding. Until the new data is full, the previously deleted data will remain hidden.
-If you choose a quick format an internal drive/Pen Drive/external hard disk. Data will not be removed. So you have to uncheck the quick format option, so that deep format will run, so only after a deep format will everything be erased. 
-
-So how to download, when you download it asks where to save, there you have to select memory card in case of phone, and Pen drive like 32gb, use low memory, work on it, upload it to the cloud drive(you can permanently delete data in cloud), then deep format the memory card.
 ```
 
 Media
