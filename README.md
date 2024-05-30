@@ -543,29 +543,22 @@ Jack reacher.
 Jerry Maguire. 
 Jobs. 
 Leon the professional. 
-Love and other drugs. 
 Rambo. 
-Rush. 
 
 Schindler's list. 
 Star Wars - I mean why make aliens so ugly. 
 
-Top gun. 
 The adjustment bureau.
-The aviator. 
 The boy in the striped pajamas. 
 The grand Budapest hotel. 
 The green mile. 
-The intern. 
 The Internet's own boy. 
-The last samurai. 
 The man who knew infinity. 
 The October sky. 
 The pianist. 
  
 The pursuit of happiness. 
 The Shawshank redemption. 
-The Truman show. 
 
 V for vendetta.
 
