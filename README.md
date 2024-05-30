@@ -524,14 +524,7 @@ How to process a dead body = remove the required organs and donate to organ bank
 But the best way is to put the bodies in a solar powered shredder and mix it with desert sand to manufacture organic manure for agriculture. (No, I am not cruel yet)
 
 Ban Christmas tree, Halloween pumpkin.(This is madness, I mean few leaves enough but not the whole tree)(This is pre christian tradition)
-Makar sun-kranti-mas(Sanskrit) = [occasion marks the transition of the sun from constellation Sagittarius (Dhanu) to Capricorn (Makara)]
-Kranti = transition(English), mas = month(English).
 
-Halo-eve(This is pre christian tradition)
-Aluo(Sanskrit) = Lamp/light(English). 
-Dipa-balee(Diwali)(Sanskrit) = Prince Rama returned home after victory, rescuing his kidnapped wife. Rama = roma(Italy) = romance
-Dipa = butter lamp(English), balee(Sanskrit) = sacrifice(English)
-Aluo(Sanskrit)-balee(Sanskrit) = Lamp/light(English)-sacrifice(English)
 
 So many things not to do, so what should we do = decision making, learn, observe, art, culture(sports, dance, music, movies) , exploration, tourism that's where you should focus on.
 
