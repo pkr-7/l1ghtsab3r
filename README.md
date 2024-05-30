@@ -1,4 +1,4 @@
-# l1ghtsab3r
+# l1ghtsab3r 
 
 :earth_asia: `Planet safe. These lines will tune your mind to absolute intellect`
 ============================================================================================
